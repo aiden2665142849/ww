@@ -1,0 +1,2 @@
+# ww
+a smart fool
